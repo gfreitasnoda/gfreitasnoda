@@ -5,7 +5,7 @@
 
 ------
 
-##### Guilherme Freitas Noda Silva
+#### Guilherme Freitas Noda Silva
 
 📍 Idade: 22 anos
 
